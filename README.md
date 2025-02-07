@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/15b82dd2-5177-4d10-bd84-f7180db127b0)# Projeto_avaliacao
+# Projeto_avaliacao
 
 LINK PARA ACESSO À RESOLUÇÃO DO EXERCÍCIO:
 
